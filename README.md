@@ -1,5 +1,5 @@
 
 ngga
-
+nigga
 ngahate
 
