@@ -1,5 +1,3 @@
-
-ngga
-nigga
-ngahate
-
+npg
+npg npga
+npg
